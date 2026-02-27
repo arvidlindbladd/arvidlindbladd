@@ -8,3 +8,5 @@
 redoing
 
 im really nice guys pls
+
+please for the love of PRIMUS DO NOT SHIP ME WITH ANY OF MY FRIENDS. I get extremely uncomfortable when shipped.
