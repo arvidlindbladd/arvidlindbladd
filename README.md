@@ -19,6 +19,8 @@ My Github is themed after Optimus Prime because of a hyperfixation I have on Tra
 
   And or Im on Roblox, Or Formula One Manager 2024.
 
+Feel Free to Talk To Me about Transformers IDW or Bayverse, I am still reading IDW.
+
 ------------------------------------------------------------------------------------------------------
 
 Do not act weird around me, I am still a Minor.
