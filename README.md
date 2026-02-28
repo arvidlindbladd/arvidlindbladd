@@ -5,10 +5,26 @@
 
                                                   2025 GRAND SLAM , FORMULA ONE HEINEKEN DUTCH GRAND PRIX , OSCAR PIASTRI
 
-redoing
+Howdy, Your likely viewing this from Ponytown. Since Ponytown is the only website or app that actively has my Github.
 
-im really nice guys pls
+  Dont be scared to interact with me, Though i do have Generalized Anxiety Disorder so it will take me a second to talk.
 
-please for the love of PRIMUS DO NOT SHIP ME WITH ANY OF MY FRIENDS. I get extremely uncomfortable when shipped.
+  Adding onto this, I have an issue with my wrist where it hurts often so if i go silent for a bit, It is likely that. I am not trying to ignore you I promise.
 
-constantly changing profile theme sorry not sorry
+My Github is themed after Optimus Prime because of a hyperfixation I have on Transformers IDW Publishing And Transformers Bayverse ( Transformers, Transformers: Revenge Of The Fallen, Transformers: Dark Of The Moon, Transformers: Age Of Extinction, Transformers: The Last Knight. )
+
+  I do sometimes roleplay, I am returning from a hiatus because of my Computer being broken. As of now, I have a new one that is a Gaming Computer. Though i am not mostly On Ponytown, You will still see me sometimes with this specific github. I do not have any other Githubs.
+
+  I am also a Formula One Fan, With a Huge Hyperfixation on the Motorsport. If im not online on Ponytown, Im usually on Formula One 2025. A F1 Game. 
+
+  And or Im on Roblox, Or Formula One Manager 2024.
+
+------------------------------------------------------------------------------------------------------
+
+Do not act weird around me, I am still a Minor.
+
+Do not interact with me if Ex friends, Or If we've had issues in the past. 
+
+Do not mention anything regarding Trauma around me unless Close friends. I do not feel comfortable knowing your traumatic backstory on a pony game.
+
+I do not friend people unless we've talked a bit and you ask me first.
