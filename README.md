@@ -21,6 +21,8 @@ My Github is themed after Optimus Prime because of a hyperfixation I have on Tra
 
 Feel Free to Talk To Me about Transformers IDW or Bayverse, I am still reading IDW.
 
+  ps ; I do not do C+H Unless Your A Friend. I do not like strangers i have not talked to sitting with me.
+
 ------------------------------------------------------------------------------------------------------
 
 Do not act weird around me, I am still a Minor.
