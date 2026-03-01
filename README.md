@@ -1,4 +1,4 @@
-<img width="1200" height="1178" alt="Untitled95_20251120144804" src="https://github.com/user-attachments/assets/c7119ca8-e9f4-4251-ab12-fa904bea2dd4"/>
+<img width="1200" height="1178" alt="Untitled95_20251120144804" src="https://github.com/user-attachments/assets/d57efee4-922c-4c8b-8c77-d68f0d1ae50e"/>
 
   ![](https://komarev.com/ghpvc/?username=ELLERN4TE&color=000000&label=RACES-WON&style=for-the-badge)
                                
