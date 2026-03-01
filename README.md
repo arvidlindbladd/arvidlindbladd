@@ -23,6 +23,8 @@ Feel Free to Talk To Me about Transformers IDW or Bayverse, I am still reading I
 
   ps ; I do not do C+H Unless Your A Friend. I do not like strangers i have not talked to sitting with me.
 
+I dont prefer to be near crowds on ponytown, Just a preference thing. I do not have crowd discomfort, I just do not like being near ponytown crowds
+
 ------------------------------------------------------------------------------------------------------
 
 Do not act weird around me, I am still a Minor.
