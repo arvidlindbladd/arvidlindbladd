@@ -7,6 +7,8 @@
 
 Howdy, Your likely viewing this from Ponytown. Since Ponytown is the only website or app that actively has my Github.
 
+note ; i am aroace, do not ship me w my friends.
+
   Dont be scared to interact with me, Though i do have Generalized Anxiety Disorder so it will take me a second to talk.
 
   Adding onto this, I have an issue with my wrist where it hurts often so if i go silent for a bit, It is likely that. I am not trying to ignore you I promise.
