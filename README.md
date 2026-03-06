@@ -5,3 +5,5 @@
 
   ㅤㅤㅤㅤㅤ
                    ㅤThe Knighted.        
+
+dni if you are an IRL ( Meaning you have a DELUSIONAL attachment to a character. ), its unhealthy and im not feeding into your delusions.
