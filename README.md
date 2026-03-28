@@ -18,3 +18,5 @@ other drivers im a fan of > george russell, liam lawson, lewis hamilton
 
 yes i ignore whispers about my tier 4 unless its a friend or a friend of a friend
 
+theistic satanist
+
